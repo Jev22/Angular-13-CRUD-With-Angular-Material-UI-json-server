@@ -1,0 +1,1 @@
+Nået til https://youtu.be/jGbP620NahE?t=4502
